@@ -1,0 +1,2 @@
+# retorika-otodidax
+Mantap
